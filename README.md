@@ -1,10 +1,10 @@
 
 
-# 💫 About Me :-) :
+# 💫 About Me :-) !!!
 **WSGGGG** <br><br>**byi** ; autistic, over 13, cisgendered, __he/him__ or __it/its__ for more info click the link below **, ,** <br> <br>**https://neverxober.carrd.co/**<br>
 
 
-## 🌐 Socials ^_^ : 
+## 🌐 Socials ^_^ !! 
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/lil_jiggysquirt) [![Pinterest](https://img.shields.io/badge/Pinterest-%23E60023.svg?logo=Pinterest&logoColor=white)](https://pinterest.com/eyestrainbat) [![TikTok](https://img.shields.io/badge/TikTok-%23000000.svg?logo=TikTok&logoColor=white)](https://tiktok.com/@OPXC1TYX) 
 
 ---
