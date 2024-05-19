@@ -1,11 +1,11 @@
 
 
 # 💫 About Me :-) !!!
-**WSGGGG** <br><br>**byi** ; autistic, over 13, cisgendered, __he/him__ or __it/its__ for more info click the link below **, ,** <br> <br>**https://neverxober.carrd.co/**<br>
+**WSGGGG** <br><br>**byi** ; autistic, over 13, cisgendered, __he/him__ or __it/its__, NH / non-human . for more info click the link below **, ,** <br> <br>**https://neverxober.carrd.co/**<br>
 
 ---
 
-## 🌐 Socials ^_^ !! 
+## 🏆 Socials ^_^ !! 
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/lil_jiggysquirt) [![Pinterest](https://img.shields.io/badge/Pinterest-%23E60023.svg?logo=Pinterest&logoColor=white)](https://pinterest.com/eyestrainbat) [![TikTok](https://img.shields.io/badge/TikTok-%23000000.svg?logo=TikTok&logoColor=white)](https://tiktok.com/@OPXC1TYX) 
 
 
@@ -20,7 +20,7 @@
 [![](https://visitcount.itsvg.in/api?id=JAYBBAWOCKEEZ&icon=7&color=2)](https://visitcount.itsvg.in)   
 
 
-![DanceHappyGIF (2)](https://github.com/JAYBBAWOCKEEZ/JAYBBAWOCKEEZ/assets/163668817/6a4590bb-e618-49c7-a3be-31705f03adf4)
+![Mob100GIF](https://github.com/JAYBBAWOCKEEZ/JAYBBAWOCKEEZ/assets/163668817/5090100e-b206-420f-b47c-9b32e6f11ca0)
 
 
   
