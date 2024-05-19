@@ -1,5 +1,5 @@
 
 
-<center>                               ◡ ♱ OPX or JAY  ˳ ˳ 
-<br> **it** ╱  he ✁ gay + heavily questioning :3 
-<br>     ask4scls ∾ no dni
+<center>  ◡ ♱ OPX or JAY  ˳ ˳ 
+<center> <br> **it** ╱  he ✁ gay + heavily questioning :3 
+<center> <br>     ask4socs ∾ no dni
