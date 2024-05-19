@@ -1,7 +1,7 @@
 
 
 # 💫 About Me :-) !!!
-**WSGGGG** <br><br>**byi** ; autistic, over 13, cisgendered, __he/him__ or __it/its__, NH / non-human . for more info click the link below **, ,** <br> <br>**https://neverxober.carrd.co/**<br>
+**WSGGGG** <br><br>**byi** ; 15+ int, cisgendered, __he/him__ or __it/its__, NH / non-human . for more info click the link below **, ,** <br> <br>**https://neverxober.carrd.co/**<br>
 
 ---
 
